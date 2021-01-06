@@ -1,0 +1,2 @@
+# mindz
+Fire way
